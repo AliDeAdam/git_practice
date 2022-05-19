@@ -1,0 +1,1 @@
+Ayyoo this is my first readme git and github fam a lams 
